@@ -1,1 +1,1 @@
-
+You can ping me for any queries and plz do appreciate my service after completing the order.
